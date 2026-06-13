@@ -7,11 +7,17 @@
 im very passionate about this movie and this stupid ship. 
 &nbsp;<div align="center">
 dont get it twisted either.. i love bloodymary 
-
+&nbsp;<div align="center">
 
 &nbsp;<div align="center">
- [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=ㅤㅤsavioursㅤㅤ%20&color=5CA374&logoColor=5CA374&style=plastic)](https://github.com/againstallgravity)
+ [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤYㅤOㅤUㅤㅤAㅤRㅤEㅤㅤBㅤRㅤAㅤVㅤEㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ%20&color=5CA374&logoColor=5CA374&style=plastic)](https://github.com/againstallgravity)
 </div>
+
+[rentry](https://rentry.co/bully55)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://adanmwere.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
+&nbsp;<div align="center">
+
+
+
 
 <img width="677" height="368" alt="14423-removebg-preview" src="https://github.com/user-attachments/assets/1ad12f29-60af-4e00-8c82-0e41569d58cb" />
 
