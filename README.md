@@ -13,7 +13,7 @@ dont get it twisted either.. i love bloodymary
  [![Visits](https://komarev.com/ghpvc/?username=againstallgravity&logo=GitHub&label=ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤYㅤOㅤUㅤㅤAㅤRㅤEㅤㅤBㅤRㅤAㅤVㅤEㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ%20&color=5CA374&logoColor=5CA374&style=plastic)](https://github.com/againstallgravity)
 </div>
 
-[rentry](https://rentry.co/bully55)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://adanmwere.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
+[rentry](https://rentry.co/bully55)ㅤㅤ[strawpage](https://adanmstinkss.straw.page/)ㅤㅤ[pronouns.page](https://en.pronouns.page/@adanmwere)ㅤㅤ[sign my ata](https://smopkins.atabook.org/)ㅤㅤ[my resource hoard](https://docs.google.com/document/d/1XUGZ8CN52RE62J0p9MqEOVf7npA2-J8qbHjP3o87H_E/edit?tab=t.0)
 &nbsp;<div align="center">
 
 
