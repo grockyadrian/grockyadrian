@@ -1,5 +1,6 @@
 
-&nbsp;<div align="center"> graceㅤrockyㅤsaveㅤstars 
+&nbsp;<div align="center">
+graceㅤrockyㅤsaveㅤstars 
 &nbsp;<div align="center"> <img width="150" height="20" alt="tumblr_b8c300644a6ca747b75d2980f250408c_aa1ca063_250" src="https://github.com/user-attachments/assets/1707ba1c-85d8-4432-bf16-d7db773a1450" />
 </div>
 &nbsp;<div align="center">
@@ -7,7 +8,7 @@
 
 im very passionate about this movie and this stupid ship. 
 &nbsp;<div align="center">
-dont get it twisted either.. i love bloodymary 
+dont get it twisted either.. i <ins>love</ins> bloodymary 
 &nbsp;<div align="center">
 
 &nbsp;<div align="center">
